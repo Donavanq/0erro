@@ -1,2 +1,2 @@
 # 0erro
-donavanq.github.io/0erro
+https://donavanq.github.io/0erro
